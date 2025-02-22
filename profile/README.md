@@ -5,8 +5,8 @@
 
 Apakah Anda mencari cara baru dan menyenangkan untuk mengekspresikan kreativitas musik Anda? Sprunki Incredibox hadir sebagai mod permainan musik inovatif yang memungkinkan siapa saja untuk menciptakan komposisi musik yang menakjubkan. Dengan antarmuka yang intuitif dan koleksi karakter yang beragam, permainan ini telah memikat hati jutaan pemain di seluruh dunia.
 
-[sprunki incredibox](https://sprunki-incredibox.org/id)
-[sprunki incredibox](https://sprunki.la/id)
+[sprunki incredibox](https://sprunki-incredibox.org/)
+[sprunki incredibox](https://sprunki.la/)
 
 ## Mengeksplorasi Dunia Musik Urban dengan Sprunki Incredibox
 
